@@ -5,5 +5,5 @@
 crackerbox ★ bodily 20 ★ traumagenic system
 </p>
 <p align="center">
-![image](https://github.com/user-attachments/assets/55979f08-f48a-4e68-95e1-f531b3600ba8)
+<img src="https://github.com/user-attachments/assets/55979f08-f48a-4e68-95e1-f531b3600ba8" alt="blinkie"/>
 </p>
