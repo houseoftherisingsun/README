@@ -1,8 +1,2 @@
-<center>
-<p>![image](https://i.imgur.com/dMPxPWd.png)</p>
-</center>
+![image](https://i.imgur.com/dMPxPWd.png)
 crackerbox ★ bodily 20 ★ traumagenic system
-
-<p style="text-align:center;"> 
-<img src="![image](https://i.imgur.com/dMPxPWd.png)" alt="img">
-</p>
