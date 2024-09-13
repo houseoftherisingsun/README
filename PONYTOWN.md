@@ -6,7 +6,7 @@ feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to
 
 </p>
 <p align="center">
-  we zone out alot so if we don't react to you please drop a whisper
+  <img src="https://github.com/user-attachments/assets/154d24fe-a303-4ecb-a918-a4a13237d676" alt="huh"/> we zone out alot so if we don't react to you please drop a whisper
 </p> 
 <p align="center">
   we're collectively autistic and haven't had any public socials/interacted with new people in a few years so genuinely sorry if anything we say comes across wrong - unless you're being a dick we won't be one back
