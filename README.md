@@ -9,7 +9,7 @@ feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to
   <img src="https://github.com/user-attachments/assets/154d24fe-a303-4ecb-a918-a4a13237d676" alt="huh"/> we zone out alot so if we don't react to you please drop a whisper
 </p> 
 <p align="center">
-  we're collectively autistic and haven't had any public socials/interacted with new people in a few years so genuinely sorry if anything we say comes across wrong - unless you're being a dick we won't be one back <img src="https://github.com/user-attachments/assets/81d5d4bb-1173-4bda-b7bc-f44d25edd6c2" alt="kis"/>
+  we're collectively autistic and haven't had any public socials/interacted with new people in a few years so genuinely sorry if anything we say comes across wrong - unless you're being a dick we won't be one back <img src="https://github.com/user-attachments/assets/973a7c05-262a-49ed-b6db-e611e4306166" alt="kis"/>
 
 </p> 
   <p align="center">
