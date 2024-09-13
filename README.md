@@ -4,6 +4,9 @@
 <p align="center">
 feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to yap
 </p>
+<p align="center">
+  we zone out alot so if we don't react to you please drop a whisper
+</p> 
   <p align="center">
   usually whatever skin we're in is whoever's currently fronting, but that's not always the case. feel free to ask if you're unsure
   </p>
