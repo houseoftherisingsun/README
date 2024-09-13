@@ -1,9 +1,8 @@
 <p align="center">
+  <img src="https://i.imgur.com/dMPxPWd.png" alt="wolf"/>
+<p align="center">
 ponytown info:
 </p>
-
-<p align="center">
-  <img src="https://i.imgur.com/dMPxPWd.png" alt="wolf"/>
 </p>
 <p align="center">
 feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to yap & listen  <img src="https://github.com/user-attachments/assets/83237bcc-ea31-4487-bbdb-ab86224a2352" alt="groovy"/>
