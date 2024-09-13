@@ -19,7 +19,7 @@ feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to
 
 </p>
 <p align="center">
-we're drinking most of the time, feel free to hide/block us if this irritates you/makes you uncomfortable
+<img src="https://github.com/user-attachments/assets/8aec57e5-7ed7-4f22-879a-b938d9800606" alt="glug"/> we're drinking most of the time, feel free to hide/block us if this irritates you/makes you uncomfortable
 </p> 
 
 <p align="center">
