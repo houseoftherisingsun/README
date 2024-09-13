@@ -2,7 +2,8 @@
   <img src="https://i.imgur.com/dMPxPWd.png" alt="wolf"/>
 </p>
 <p align="center">
-feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to yap
+feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to yap <img src="!https://github.com/user-attachments/assets/83237bcc-ea31-4487-bbdb-ab86224a2352" alt="groovy"/>
+
 </p>
 <p align="center">
   we zone out alot so if we don't react to you please drop a whisper
