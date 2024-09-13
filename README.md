@@ -19,3 +19,7 @@ feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to
 <p align="center">
 we're drinking most of the time, feel free to hide/block us if this irritates you/makes you uncomfortable
 </p> 
+
+<p align="center">
+thanks for reading! 
+</p> 
