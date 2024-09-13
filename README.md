@@ -13,3 +13,6 @@ feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to
   <p align="center">
  please don't try to roleplay with us (jokingly is funny) or treat us like our sources bro it's weird
 </p>
+<p align="center">
+we're either drinking or drunk alot of the time, feel free to hide/block us if we irritate you
+</p> 
