@@ -2,7 +2,7 @@
   <img src="https://i.imgur.com/dMPxPWd.png" alt="wolf"/>
 </p>
 <p align="center">
-feel free to c+h, whisper or sit with us, interaction is encouraged!!
+feel free to c+h, whisper, or sit with us, interaction is encouraged!
 </p>
   <p align="center">
   more often than not whatever skin we're in is whoever's fronting, but that's not always the case. feel free to ask if you're unsure
