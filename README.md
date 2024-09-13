@@ -14,7 +14,8 @@ feel free to c+h, whisper, or sit with us, interaction is encouraged! we love to
   usually whatever skin we're in is whoever's currently fronting, but that's not always the case. feel free to ask if you're unsure
   </p>
   <p align="center">
- please don't try to roleplay with us (jokingly is funny) or treat us like our sources bro it's weird
+ please don't try to roleplay with us (jokingly is funny) or treat us like our sources bro it's weird <img src="https://github.com/user-attachments/assets/fc8fb2eb-3dc0-4ded-bc14-86467278a2c4" alt=wapow"/>
+
 </p>
 <p align="center">
 we're drinking most of the time, feel free to hide/block us if this irritates you/makes you uncomfortable
