@@ -21,6 +21,6 @@ we're drinking most of the time, feel free to hide/block us if this irritates yo
 </p> 
 
 <p align="center">
-thanks for reading! stay gold <img src="https://github.com/user-attachments/assets/f44629b3-91ec-4cab-a2d5-fcb997f59dac" alt="hehe"/>
+thanks for reading & stay gold <img src="https://github.com/user-attachments/assets/f44629b3-91ec-4cab-a2d5-fcb997f59dac" alt="hehe"/>
 
 </p> 
